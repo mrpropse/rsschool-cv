@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://mrpropse.github.io/rsschool-cv/cv 
