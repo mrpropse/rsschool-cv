@@ -1,4 +1,4 @@
-# rsschool-cv
+
 # Aleksei Kosyrev
 ## My contacts
 * phone number: +7(965)4351668 
